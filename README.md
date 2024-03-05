@@ -1,1 +1,0 @@
-# Charan_Katta_midterm
